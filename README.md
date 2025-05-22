@@ -32,4 +32,3 @@ Se você tiver sugestões de melhorias ou novas funcionalidades, sinta-se à von
 
 ---
 
-Se precisar de ajustes ou quiser incluir mais informações, me avise! 🚀
